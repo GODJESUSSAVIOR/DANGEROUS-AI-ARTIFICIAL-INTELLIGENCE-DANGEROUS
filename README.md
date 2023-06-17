@@ -52,4 +52,18 @@ https://www2.cbn.com/news/us/rise-machines-are-we-entering-dangerous-territory-m
 
 https://www2.cbn.com/news/cwn/ai-chatbot-preaches-church-germany-looks-unveiling-antichristbeast-system
 
+https://www1.cbn.com/cbnnews/national-security/2023/june/new-reports-of-chinese-espionage-ahead-of-blinken-trip-to-beijing
+
+https://www.scientificamerican.com/article/heres-why-ai-may-be-extremely-dangerous-whether-its-conscious-or-not/
+
+https://www.techradar.com/news/users-urged-to-throw-away-chinese-smartphones-over-spying-fears
+
+https://www.cbsnews.com/news/how-china-can-spy-on-your-electronics-even-in-the-u-s-60-minutes-2019-08-11/
+
+https://vpnoverview.com/news/are-chinese-phones-spying-on-us/
+
+https://news.sky.com/story/chinese-propaganda-app-allows-government-to-spy-on-users-phones-11835526
+
+https://whatphone.com.au/guide/your-chinese-smartphone-spying-you
+
 ...
